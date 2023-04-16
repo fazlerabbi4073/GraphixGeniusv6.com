@@ -1,1 +1,0 @@
-# GraphixGeniusv6.com
